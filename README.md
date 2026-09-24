@@ -12,7 +12,7 @@
 <br>
 <strong>ʟᴀɴɢᴜᴀɢᴇs:</strong> ᴇɴ ᴀɴᴅ ᴛʀ
 <br>
-<strong>ᴀɢᴇ:</strong> 𝟷𝟺, sᴏᴏɴ 𝟷𝟻!! >⩊<.ᐟ
+<strong>ᴀɢᴇ:</strong>𝟷𝟻!! >⩊<.ᐟ
 <br>
 <strong>ᴅɪsᴏʀᴅᴇʀs:</strong> ᴀɴxɪᴇᴛʏ, ᴀᴅʜᴅ, ᴍᴅᴅ, ᴘᴅ+ᴘᴀ (ᴀʟʟ ᴅɪᴀɢɴᴏsᴇᴅ!)
 <br>
